@@ -1,4 +1,4 @@
-# Hola 👋
+# 💫 About Me:
 
 ¡Hola! 👋 Soy Brigitte, una apasionada de la tecnología y el desarrollo web con un amor inquebrantable por la creación de soluciones innovadoras. Aquí tienes un vistazo rápido a quién soy y a lo que hago:
 
